@@ -1,1 +1,1 @@
-Learning C, Python
+C, Python 배우는 중

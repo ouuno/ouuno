@@ -1,3 +1,3 @@
-### ouun-d
+### 오운 (ouun, oounn)
 
-Learn and Make
+취미로 프로그래밍

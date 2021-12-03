@@ -1,1 +1,1 @@
-### 오운 (ouun, oounn)
+### 오운 / ouun
